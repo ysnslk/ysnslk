@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi im Yasin / 28 <br>🌱 I’m currently learning<br>⚡ Fun fact
+👋 Hi im Yasin<br>🌱 I’m currently learning<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
